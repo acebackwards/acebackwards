@@ -1,5 +1,5 @@
-### I'm Dmitry 👋
-## Nice to meet you
+## I'm Dmitry 👋
+### I'm improving my skills every day, every minute and even while you are reading this text...
 
 
 
